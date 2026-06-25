@@ -1,1 +1,0 @@
-# yosefshipl049-max.github.io
